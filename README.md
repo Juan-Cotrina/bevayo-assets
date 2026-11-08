@@ -1,0 +1,1 @@
+# bevayo-assets
